@@ -1,0 +1,2 @@
+# piyoz.uz
+yangiliklarsayti
